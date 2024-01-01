@@ -1,1 +1,3 @@
-![7D2428B5-D8A1-408C-9714-971832E92E08](https://github.com/vampaku/vampaku/assets/139192960/2726193e-dc39-4703-9439-ab552c3b1ede)
+i love deadplate
+![639A008F-B2CB-46F6-8A00-A90FB97E6A53](https://github.com/vampaku/vampaku/assets/139192960/4b883722-aad7-4e06-b7f8-dd6728fe6463)
+

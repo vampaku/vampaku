@@ -1,1 +1,1 @@
-![7B7F00F1-CBB2-44D2-B03F-875368ED1DA0](https://github.com/vampaku/vampaku/assets/139192960/27a1758e-3ecb-4ca8-a592-3b40282dd4af)
+![8B94DFF8-F698-44FC-A084-25B5B18EC53B](https://github.com/vampaku/vampaku/assets/139192960/c1ca7622-db1a-4cf6-b9e2-73c80fb13826)

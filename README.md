@@ -1,2 +1,2 @@
-![CC413C78-1FEC-45FB-A369-295003060CE7](https://github.com/vampaku/vampaku/assets/139192960/f84495d2-529e-42be-9e3c-f66ce0ed9588)
+![3F71A7CB-B707-4608-8F44-AF3FBD8DCC10](https://github.com/vampaku/vampaku/assets/139192960/1d4f5529-5787-49de-9038-62258ff14070)
 

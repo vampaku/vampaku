@@ -1,1 +1,1 @@
-![IMG_8763](https://github.com/vampaku/vampaku/assets/139192960/f43be6c1-52da-4119-9133-09aa8e28729a)
+![IMG_2466](https://github.com/vampaku/vampaku/assets/139192960/79b83d0c-d852-49c8-9b34-4135a4581315)

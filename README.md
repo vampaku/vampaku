@@ -1,6 +1,4 @@
-![937B644B-4538-4216-8191-0F800F551094](https://github.com/vampaku/vampaku/assets/139192960/c3011c65-1ee4-46c3-9636-68faac591e48)
-
-
+![DA1387AA-80B1-402E-BC23-C6CF8D0EAD1B](https://github.com/vampaku/vampaku/assets/139192960/7f746a31-033c-4202-af00-a34a26aab808)
 
 ![](https://komarev.com/ghpvc/?username=vampaku&label=VIEWERS&color=red&style=for-the-badge&base=400)
 ㅤ 

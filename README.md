@@ -1,6 +1,6 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=vampaku&label=VIEWERS&color=lightgrey&style=flat&base=600)‎
+![](https://komarev.com/ghpvc/?username=vampaku&label=Seal‎_Count&color=lightgrey&style=flat&base=600)‎
   
 ![420F3ED3-35FB-44B8-A3B5-CF101659B926](https://github.com/user-attachments/assets/c64fb395-b2da-4e0f-900e-a20018af0708)
 

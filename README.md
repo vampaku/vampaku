@@ -1,7 +1,7 @@
 
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=vampaku&label=Seal‎_Count&color=lightgrey&style=flat&base=600)‎
+![](https://komarev.com/ghpvc/?username=vampaku&label=heart‎_surgery_patients&color=lightgrey&style=flat&base=600)‎
   
 <img width="375" height="274" alt="Untitled1189_20260111035735" src="https://github.com/user-attachments/assets/0051b058-b574-4bfc-9007-b309fa690869" />
 
